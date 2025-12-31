@@ -6,7 +6,7 @@
 
 ### I use Github to try something shit for my phone like build patched kermel, find something tuff, and I think in colleague will need it, so if you see i committed in my repo like shiet or so stupid, please ignore it 🥀   
 
-## More about me!
+### More about me!
 - I'm eightine, male. Now I'm straight btw!
 - You can call me "em Huy", "staciamarchxix" or my riel name but I prefer nickname in front.
 - I was born in July, 30th, 2007 (you know, i am eightine but i look like skid 😢)
